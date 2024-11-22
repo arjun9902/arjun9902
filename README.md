@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on private member ship 
 - 📫 How to reach me chandigrah 
 - 😄 Pronouns: he/him
-- ⚡ Fun fact : enjoying every second 
+- ⚡ Fun fact : enjoying every seconde
 
 <!---
 arjun9902/arjun9902 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
